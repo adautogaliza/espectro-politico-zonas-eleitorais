@@ -1,0 +1,1 @@
+# espectro-politico-zonas-eleitorais
